@@ -1,4 +1,4 @@
-                                                                        LAPORAN PRAKTIKUM
+                                                                       LAPORAN PRAKTIKUM
 
 Tugas Praktikum
 1. Silakan selesaikan Praktikum 1 sampai 3, lalu dokumentasikan berupa screenshot hasil pekerjaan beserta penjelasannya!  
